@@ -18,4 +18,4 @@ Tu peux me joindre par email à `omarimasudilae@email.com`.
 ---
 
 Merci de visiter ce site ✨
-Développé avec ❤️ par Ton furaha 
+Développé avec ❤️ par Ton laetitia masudi 
